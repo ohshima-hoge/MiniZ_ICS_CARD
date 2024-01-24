@@ -1,0 +1,1 @@
+# MiniZ_ICS_CARD
